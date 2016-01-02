@@ -1,3 +1,3 @@
-FooCoin (FOO)
+LilyCoin (LILY)
 
-Blah, blah, blah.
+New Era Cryptocurrency
